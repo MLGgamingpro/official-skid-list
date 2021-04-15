@@ -50,7 +50,7 @@
 - Clown Reason: legit cant even make a boolean.
 
 
-> **Alerthie** 
+> **Alerithe** 
 - "Developed": Some NN clients 
 - Clown Reason: Skidded Spectre
 
@@ -90,7 +90,7 @@
 - "Developed": MarshyWare
 - Clown Reason: Some kid who thinks he is a epic HACKER DEVELOPER by joining clients development teams and then leaking source codes. (Not to mention the fact that he uses MasterOf13FPS, He himself says "It's not a skid if they dont find out."), This client is on my agenda, whatever obfuscation he uses, I will try and deobf. His favourite words, "I will deobfuscate Xatz" (No knowledge in Jbyte moment) This guy is retarded and cant fix simple errors without his sugar daddy energized who is in a secret underage gay relationship with him.
 
-> **Energized** 
+> **Energized (Edward Deegan)** 
 - "Developed": Some NN Client that I [deobfuscated](https://masterof13fps.com/forum/index.php?threads/pace-client-dobfuscated-and-decompiled-imagine-using-superblaubeere-obf-in-2021.7511/)
 - Clown Reason: Hard on the internet, pussy irl. This guy is the type of guy you would use the term "Bri'ish." I deobfuscated his skid and leaked it to the public, ever since, he has been shitting his pants xD (his face is also public [here](https://www.youtube.com/channel/UCXiPmFhdxukVg-nfj0HwKCg)
 
@@ -126,6 +126,14 @@
 
 > **chocopie**
 - Clown Reason: Admitted to skidding, Has a shit src collection, imagine thinking 29 src codes is alot, I have 128, beat that you clown (the Src codes i collect, are collected for archival purposes, and so i can try and compile old clients for nostalgia)
+
+> **NotOma (ThatOma, Oma, OmaDude, @YeahOMA )**
+- "Developed": Oma backdoor 0.5 (Travis backdoor skid), Oma backdoor Latest (Yoink rat copy/rename except with a different webhook api), Fake astolfo crack rat which he exposed to get karma on reddit even though he made the rat (wow)
+- Clown Reason: Where do i even start?   A no name "ratter" (put in quotes because he is shit at ratting) 
+- Tried to manipulate me to join him in ratting "5000 kids" and then ended up getting exposed by me, read this https://www.reddit.com/r/minecraftclients/comments/mneifa/notoma_expose_usnoorevelations9835_skid_momento/ 
+- Part 2: https://www.reddit.com/r/minecraftclients/comments/mnjrhf/response_to_omas_pathetic_response_john_swan/
+- Part 3: https://www.reddit.com/r/minecraftclients/comments/mnom05/oma_being_a_clown_exposed_again_part_3_john_swan/
+- He is still crying about it because he has to rat children to cope in his shitty life since his mother couldnt afford an abortion
 
 # Retards
 > **Mario** 
