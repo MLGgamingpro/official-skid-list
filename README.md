@@ -92,14 +92,14 @@
 
 > **Energized (Edward Deegan)** 
 - "Developed": Some NN Client that I [deobfuscated](https://masterof13fps.com/forum/index.php?threads/pace-client-dobfuscated-and-decompiled-imagine-using-superblaubeere-obf-in-2021.7511/)
-- Clown Reason: Hard on the internet, pussy irl. This guy is the type of guy you would use the term "Bri'ish." I deobfuscated his skid and leaked it to the public, ever since, he has been shitting his pants xD (his face is also public [here](https://www.youtube.com/channel/UCXiPmFhdxukVg-nfj0HwKCg)
+- Clown Reason: Hard on the internet, pussy irl. This guy is the type of guy you would use the term "Bri'ish." I deobfuscated his skid and leaked it to the public, ever since, he has been shitting his pants xD (his face is also public [here](https://www.youtube.com/channel/UCXiPmFhdxukVg-nfj0HwKCg))
 
 > **Memer** 
 - Clown Reason: Does not know a dogsfuck about java and is still in a clients development team, this dumb fuck sucks marshy off whenever marshy feels depressed about me making fun of him.
 
 > **Omikron**
 - "Developed": Skidma (Sigma)
-- Clown Reason: If you think this guy shouldn't be on this list, you are seriously retarded, he has pasted many clients for his shit skid called "Sigma", he has been pasting ever since daddy Arithmo has left. I never knew french people made such hidden bitcoin, and monero miners until i tried his shit rat, L  
+- Clown Reason: If you think this guy shouldn't be on this list, you are seriously retarded, he has pasted many clients for his shit skid called "Sigma", he has been pasting ever since daddy Arithmo has left.
 [His Urban Dictionary](https://www.urbandictionary.com/define.php?term=Omikron)   "A retarded hypocrite who constantly steals other peoples code and whenever called out on it he sends his 11 year old fanbase to attack that person."
 
 > **LeakedPVP** 
@@ -112,7 +112,7 @@
  - Skidded: Every known client (because hes Omikron)
 
 > **Heroholand**  
-- Clown Reason: Still uses blink vanilla fly as a Redesky Fly, That was acceptable 3 months ago...
+- Clown Reason: Still uses blink vanilla fly as a Redesky Fly, That was acceptable 3 months ago... (Such good $10 client bro wow)
 
 > **Crystal ( Shadow Client / Mystra Client Developer)** 
 - "Developed": Mystra / Shadow Client
@@ -135,6 +135,10 @@
 - Part 3: https://www.reddit.com/r/minecraftclients/comments/mnom05/oma_being_a_clown_exposed_again_part_3_john_swan/
 - He is still crying about it because he has to rat children to cope in his shitty life since his mother couldnt afford an abortion
 
+> **winterfoxx**
+- "Developed": [Prismatic Client](https://masterof13fps.com/forum/index.php?threads/prismatic-client-cracked-by-napoleon-zoomberparts.7603/#post-62063)
+- Clown Reason: Thought it was a nice idea to use cracked binscure as obf because his mommy can't pay for actual Binscure. Got his $10 client cracked (by me) 
+
 # Retards
 > **Mario** 
 - Whenever I make an alt, He is the first person I go to and annoy, It is so fucking funny screwing with him and seeing him wait for Omikron to give him comebacks, he knows nothing about java or ports but acts like he has a brain. I have annoyed him on a few alts and our DM's are funny asf.
@@ -145,18 +149,24 @@
 > **CrystalinQQ** 
 - Clown Reason: Got himself banned from r/minecraftclients (exposing pics of an underage femboy) and he got exposed for dating a femboy, L
 
+> **Orange / Orangified**
+- Clown Reason: The worlds biggest retard, still has something against me, tried to get PrinceKin to "crack" my free clients while ruining both of their reputations. Down Syndrome shown at early encounters with him, simps for rektsky (LOL DEAD CLIENT) Still hates me for banning and removing his beta tester role in Xatz client discord, a certified No Name who is looking for clout, rn he is forking this and trying to act like he is all so smart and he finally got back at Napoleon!1!2!!2!1. Tl;Dr: no name with autism because his parents drunk a shit ton of alcohol (moment)
 # Credits & Cool Ppl (Not Skids)
 > **Gowixx**
 - Made the readme.md look more swag
 
 > **Shrunkie**
-- Exposing shadow/mystra client and leaking its src (also check out clippy.gg his swag image hosting so you can look less like a NN on discord)
+- Exposing shadow/mystra client and leaking it's src
 
 > **Intent**
 - Making SuperheroFX so fang can simp for something other than astolfo
 
 > **NaakateM0LRatten**
 - Sexing marshy's mom
+
+> **Mastercooker (x4e)**
+- Making Binscure obfuscator, generally cool man. Contributes to obfuscators and deobfuscators, and usually has repos in that field.
+- 10/10 would recommend Binscure (buy it though 😠)
 
 ## Sponsored by fitmc popbob lava shulker exploit dupe 2021 working download trial ** NO VIRUS ** ** NO SURVEY **
 no rat i swear good exploit
